@@ -1,4 +1,4 @@
-1.  pendidikan di negeri ini tak ada hentinya dirundung problem, mulai dari persoalan tata kelola sekolah, kekurangan pengajar, kurikulum yang sering berganti-ganti, infrastruktur kurang memadai, hingga pada tataran tindak kekerasan dan perundungan.
+1.  pendidikan di negeri ini tak ada hentinya dirundung masalah, mulai dari persoalan tata kelola sekolah, kekurangan pengajar, kurikulum yang sering berganti-ganti, infrastruktur kurang memadai, hingga pada tataran tindak kekerasan dan perundungan.
 
 2.  - kurangnya Kesadaran masyarakat untuk menempuh pendidikan
     - biaya yang relatif mahal membuat sebagian masyarakat tidak mampu untuk menempuh pendidikan
@@ -44,4 +44,12 @@ Selama ini, mekanisme akreditasi terbilang rumit karena kewajibannya untuk mempe
 
 Peningkatan kredibilitas dan mekanisme akreditasi memungkinkan otonomi dalam institusi pendidikan yang terdiri dari 4 aspek yaitu kurikulum / program, guru / dosen, kemitraan, dan pengoperasian / manajemen. Otonomi ini dapat diterapkan pada pendidikan tinggi dan/atau sekolah swasta. Kebijakan yang ke – 10 ini bersifat suka rela, berbasis data, merujuk pada praktik terbaik tingkat global, serta pelibatan industri atau komunitas.
 
+4.  - Melakukan penelitian
+    - Selalu upgrade ilmu
+    - Selalu aktif dan kreatif
+    - Melakukan pengabdian masyarakat
+    - Pendekatan dengan mahasiswa dan lingkungan kampus
+    
+5. Pengembangan potensi diri sebagai kesadaran akan hakikat pendidikan yang mendasar. Berupaya untuk senantiasa memenuhi kebutuhan akan perbaikan dari sebuah sistem pendidikan nasional di Indonesia. 
 
+6. 
